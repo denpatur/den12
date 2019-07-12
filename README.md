@@ -1,2 +1,0 @@
-# den12
-Patur
